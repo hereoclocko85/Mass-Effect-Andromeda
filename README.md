@@ -229,3 +229,6 @@ Mass Effect: Andromeda is offered as the full free version, with all features an
 ---
 
 Don't miss out on the opportunity to explore the Andromeda galaxy. **Download Mass Effect: Andromeda for free today!**
+
+---
+**Last updated:** 2026-09-16 07:18:01 UTC
